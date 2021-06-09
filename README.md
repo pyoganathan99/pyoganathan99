@@ -25,5 +25,5 @@ I used to work as a freelance developer, creating automation tools that help peo
 - Long articles [Medium](https://medium.com/@pyoganathan99)
 - Byte sized articles [Baby Wolf Codes (Instagram)](https://www.instagram.com/baby_wolf_codes)
 - Hiring me(!)? [LinkedIn](https://www.linkedin.com/in/yoganathan-palaniswamy-77107975/)
-- Dubstep? [My music](https://www.youtube.com/playlist?list=PLMxsMkrewok1csB9PKWiL4V7UgNKe4RnC)
+- Dubstep? My music - [on YouTube](https://www.youtube.com/channel/UCpkT8_s_HZq96o1j42oJQDw) [on Instagram](https://www.instagram.com/audible_chaos/)
 - Zettabyte Studio [on YouTube](https://www.youtube.com/channel/UCOXpGzY4hrTtHyPPpYssubg)
